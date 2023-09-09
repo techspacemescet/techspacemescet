@@ -26,7 +26,7 @@ We're the epicenter of innovation and collaboration on Mes College of Engineerin
 
 🔍 Explore Our Projects: Dive into our repositories and contribute to cutting-edge tech projects and researches that shape the future. Don't forget to ⭐️ your favorites!
 
-💡 Ready to Join? Get involved, level up your skills, and be part of something extraordinary. Together, we code the future! 🌠
+💡 Ready to Join? Get involved, level up your skills, and be part of something extraordinary. Together, we build the future! 🌠
 
 Connect us :
 techspacemescet@gmail.com
